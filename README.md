@@ -1,6 +1,6 @@
-# Mavi🖕🏼
+# Mavi
 
-Maria V.
+Maria V.🖕🏼
 
 15y
 
